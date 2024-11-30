@@ -1,5 +1,5 @@
 # ➔ Welcome to Lindsays' Collective Profile
-![white-banner](https://github.com/user-attachments/assets/c1b0e0ac-4bff-42b9-ba3b-6b7f6342034b)
+
 ## ABOUT 
 ➔  Sales & growth leader ➔ North & South Carolina real estate agent ➔ Health edu. specalist ➔ Yoga teacher ➔ Entrepreneur 
 ➔  Based in Charlotte, NC ↦ from NY
